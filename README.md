@@ -1,0 +1,2 @@
+# NJUST
+As a Student
